@@ -2,6 +2,4 @@
 
 ### 2021 DECEMBER
 
-1. https://astralcodexten.substack.com/p/book-review-lifespan | aging biology book-review 
-
-2.  
+1. TBD
